@@ -1,7 +1,7 @@
 -  Hi, I’m @GALACTIC-PRETTY-BOY
--  I’m interested in ..TALL WOMEN HAHHAHAHAHAHAHA
+-  I’m interested in ..
 - Anime
--PIXAL ART
+-PIXAL ART(selling)
 - Gamin(rpg)
 
 <!---
